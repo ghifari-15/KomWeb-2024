@@ -1,2 +1,2 @@
 # KomWeb-2024
-Buat ngumpulin Kom Web 
+Udah pede banget pokoknya deh yakk
